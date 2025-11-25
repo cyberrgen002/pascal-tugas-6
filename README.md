@@ -1,0 +1,1 @@
+# pascal-tugas-6
